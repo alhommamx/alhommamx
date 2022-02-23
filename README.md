@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @alhommamx
-- 👀 I’m interested in ... programming and being a fullstack dev
-- 🌱 I’m currently learning ... X
-- 💞️ I’m looking to collaborate on ... X
+- 👀 I’m a social media manager with years of experience 
+- 🌱 I’m currently learning more and more about crypto and the NFT world and web 3 ... X
+- 💞️ I’m looking for a job currently  ... X
 - 📫 How to reach me ... alhommamx@gmail.com
 
 <!---
